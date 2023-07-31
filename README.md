@@ -1,4 +1,4 @@
 # mylodge
 
-Lodge in Magaliesburg
+Lodge in Magaliesburg!
 
